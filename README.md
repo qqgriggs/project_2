@@ -1,1 +1,1 @@
-https://github.com/qqgriggs/project_2
+https://github.com/qqgriggs/slozhno-sosredotochitsya-ad
